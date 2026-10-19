@@ -1,1 +1,1 @@
-# betfm
+Modern casinos throw a massive number of slots and other games at you these days. Anyone else feel like having that many options actually makes it harder to pick? Last time, before I landed on [100 Golden Coins Dice Edition slot]([# betfm](https://betfm.com/slots/100-golden-coins-dice-edition-demo-review/), I spent forever just scrolling through the game list and skimming the blurb on each one. Then again, a lot of players love that variety and are always hyping it up. Maybe I'm just still new to this whole thing.)
